@@ -1,3 +1,4 @@
+ibra t trop mon gars!
 Ça va comme tous les jours
 J'ai l'démon faut l'tempérer
 Hé Tarik, comment tu vas?
